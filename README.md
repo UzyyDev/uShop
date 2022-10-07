@@ -10,9 +10,10 @@
 
 - Contract fournis 
 
-☆:::::::: Discord :::::::☆
+☆:::::::: Lien :::::::☆
 
-https://discord.gg/w7GZVP7rkJ
+Discord : https://discord.gg/w7GZVP7rkJ
+Video : https://www.youtube.com/watch?v=0RA-UdVYER4&t=2s
 
 ☆:::::::: Bonnus :::::::☆
 
